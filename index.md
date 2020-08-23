@@ -1,5 +1,5 @@
 ## Group Members
-- Can Aytöre
+- Can AYTÖRE
 - Ebru GEÇİCİ
 - Mustafa KESER
 - Nazlı GÜL
